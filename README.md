@@ -8,3 +8,6 @@
 ## Board Games
 * Stellara
 * Tapestry
+
+## Comic Books
+* _We Called Them Giants_, Gillen, Hans, Cowles
