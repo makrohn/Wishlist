@@ -15,3 +15,6 @@
 ## Fire Stuff
 * Fire Poker
 * Marshmallow Sticks (reusable)
+
+## Camping
+* 1.5" Thermarest
