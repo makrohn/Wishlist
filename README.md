@@ -11,3 +11,7 @@
 
 ## Comic Books
 * _We Called Them Giants_, Gillen, Hans, Cowles
+
+## Fire Stuff
+* Fire Poker
+* Marshmallow Sticks (reusable)
