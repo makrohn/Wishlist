@@ -6,7 +6,7 @@
 * Horizon Forbidden West
 
 ## Board Games
-* Stellara
+* Stella (Dixit Universe)
 * Tapestry
 
 ## Comic Books
