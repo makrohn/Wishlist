@@ -7,7 +7,6 @@
 
 ## Board Games
 * Stella (Dixit Universe)
-* Tapestry
 
 ## Comic Books
 * _We Called Them Giants_, Gillen, Hans, Cowles
