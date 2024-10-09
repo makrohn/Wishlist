@@ -1,6 +1,6 @@
 # Wishlist
 
-## Once I get a PS5:
+## PS5 Games:
 * Final Fantasy VII Rebirth
 * Final Fantasy XVI
 * Horizon Forbidden West
