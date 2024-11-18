@@ -10,6 +10,7 @@
 
 ## Comic Books
 * _We Called Them Giants_, Gillen, Hans, Cowles
+* _The Great British Bump-Off_, Allison, John, Sarin, Max 
 
 ## Fire Stuff
 * Fire Poker
