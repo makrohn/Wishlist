@@ -6,7 +6,7 @@
 * Horizon Forbidden West
 
 ## Board Games
-* Creature Comforts
+* 
 
 ## Comic Books
 * _We Called Them Giants_, Gillen, Hans, Cowles
