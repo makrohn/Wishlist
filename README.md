@@ -20,4 +20,4 @@
 * 1.5" Thermarest
 
 ## Fencing gear
-* [Leon Paul blade](https://www.leonpaulusa.com/lp-standard-epee-blade-unwired.html)
+* 
